@@ -1,3 +1,3 @@
-<a target="_blank" href="https://w5kjwzpvmtb5k9dhscgieg.on.drv.tw/Web_HTML/">Click Click!!!!!!!</a>
+<a target="_blank" href="https://w5kjwzpvmtb5k9dhscgieg.on.drv.tw/Web_HTML/">Click Click!!!</a>
 
 Like + Comment ♥
